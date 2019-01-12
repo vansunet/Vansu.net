@@ -18,3 +18,14 @@ Hoặc mail: lienhe@vansu.net
 Địa chỉ: Cao Lỗ, Uy Nỗ, Đông Anh, Hà Nội
 
 Điện thoại: 01653529856
+
+Kết nối với Vạn sự trên các MXH:
+https://fancy.com/vansunet
+https://muckrack.com/van-su
+https://www.intensedebate.com/people/vansunet
+https://www.minds.com/nhumaihoa
+https://www.facebook.com/vansu.net/
+https://bbpress.org/forums/profile/vansunet/
+https://mix.com/vansudotnet
+https://trello.com/vansunet
+https://www.plurk.com/vsoutlook
