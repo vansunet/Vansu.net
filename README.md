@@ -19,21 +19,13 @@ Hoặc mail: lienhe@vansu.net
 
 Điện thoại: 01653529856
 
-Kết nối với Vạn sự trên các MXH:
-https://fancy.com/vansunet
-
-https://muckrack.com/van-su
-
-https://www.intensedebate.com/people/vansunet
-
-https://www.minds.com/nhumaihoa
-
-https://www.facebook.com/vansu.net/
-
-https://bbpress.org/forums/profile/vansunet/
-
-https://mix.com/vansudotnet
-
-https://trello.com/vansunet
-
+Kết nối với Vạn sự trên các MXH:<br>
+https://fancy.com/vansunet<br>
+https://muckrack.com/van-su<br>
+https://www.intensedebate.com/people/vansunet<br>
+https://www.minds.com/nhumaihoa<br>
+https://www.facebook.com/vansu.net/<br>
+https://bbpress.org/forums/profile/vansunet/<br>
+https://mix.com/vansudotnet<br>
+https://trello.com/vansunet<br>
 https://www.plurk.com/vsoutlook
